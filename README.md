@@ -2,7 +2,7 @@
 
 
 
-ㅤ  ㅤㅤ ㅤ  ㅤㅤ ꒱ ㅤ   ㅤHiii my name is *kyle* !! 
+ㅤ  ㅤㅤ ㅤ  ㅤㅤ ꒱ ㅤ   ㅤHiii my name is *kyle !!* 
 
 
 ㅤ  ㅤㅤㅤ꒱ ㅤ     ㅤC+H is always!ㅤ    .ㅤ   Mostly offtab 
