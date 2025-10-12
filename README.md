@@ -19,6 +19,3 @@
 
 
 
- <img width="753" height="107" alt="Screenshot 2025-10-12 021423" src="https://github.com/user-attachments/assets/22f3dfb0-857e-4d1b-aa94-f52fee8a6186" />
-
-silly is racist to me AND lo calling us mexican cheese..
