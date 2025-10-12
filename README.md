@@ -13,7 +13,7 @@
  ㅤ     C+H is always i love cuds !ㅤ    .ㅤ   u can Find me @ rblx area near bakery
 
 
- ㅤ ㅤI love making new friends and talking __#bmf__ pls..ok..? <img width="35" height="100" alt="Screenshot 2025-10-08 110115" src="https://github.com/user-attachments/assets/60f381f6-fda4-4d61-b87c-b736649f8684" />
+ ㅤ I love making new friends and talking __#bmf__ pls..ok..? <img width="35" height="100" alt="Screenshot 2025-10-08 110115" src="https://github.com/user-attachments/assets/60f381f6-fda4-4d61-b87c-b736649f8684" />
 
  ㅤ> https://yellowm.straw.page/ ㅤ  ㅤ  https://yellowmu1qs.atabook.org/
 
