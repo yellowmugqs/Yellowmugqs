@@ -1,7 +1,3 @@
+![e213fa837eda411e9d9a7e5ff9486672~tplv-jj85edgx6n-image-origin](https://github.com/user-attachments/assets/2a0b5720-881e-4db0-a7c1-0d62ab2b842b)
 
-<img width="200" height="300" alt="Untitled6_20251014113737" src="https://github.com/user-attachments/assets/307b2d53-c347-4b78-90a9-9a1f68edded8" />  ㅤ> https://yellowm.straw.page/ ㅤ
-
-
-ㅤ >  https://yellowmu1qs.atabook.org/ ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤ<img width="200" height="334" alt="Untitled6_20251014113721" src="https://github.com/user-attachments/assets/f6c1555c-f33f-48b4-9161-dfe04df4905a" />
-
-Wip lalal
+ ㅤ> https://yellowm.straw.page/ ㅤ  ㅤ  https://yellowmu1qs.atabook.org/
