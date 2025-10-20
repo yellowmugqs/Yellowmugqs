@@ -8,6 +8,6 @@ https://yellowmu1qs.atabook.org/
 
 ㅤㅤㅤ C+h is always no need to ask ^_^ㅤㅤㅤㅤ w2i mostly always offtab !
 
-ㅤㅤㅤㅤㅤㅤㅤMy name is kyle hiii u can Find me @ rblx area near bakery
+ㅤㅤㅤㅤㅤㅤMy name is kyle hiii u can Find me @ rblx area near bakery
 
 
