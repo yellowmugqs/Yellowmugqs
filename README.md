@@ -1,8 +1,8 @@
- ㅤ> https://yellowm.straw.page/ ㅤ  ㅤ  https://yellowmu1qs.atabook.org/
 
- C+H always plsplss , w2i mostly offtab ok..?
+<img width="600" height="636" alt="Untitled5_20251019202119" src="https://github.com/user-attachments/assets/5fb40ff8-bec7-4b44-9a13-b31a6396bc9c" />
 
+ㅤㅤㅤㅤhttps://yellowm.straw.page/  <img width="30" height="50" alt="Screenshot 2025-10-08 110115" src="https://github.com/user-attachments/assets/14a4eb10-12ba-47a4-8024-c0cdac963ac4" />
+https://yellowmu1qs.atabook.org/ 
 
-<img width="388" height="482" alt="Untitled8_20251014133214" src="https://github.com/user-attachments/assets/b1dbf5d7-e003-4f79-8275-df8180a208dd" />
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤOzo is that you? LOL it must be !
 
