@@ -4,10 +4,10 @@
 ㅤㅤㅤㅤhttps://yellowmuhqsigig.straw.page/  <img width="30" height="50" alt="Screenshot 2025-10-08 110115" src="https://github.com/user-attachments/assets/14a4eb10-12ba-47a4-8024-c0cdac963ac4" />
 https://yellowmu1qs.atabook.org/ 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $${\color{green}" Ozo ~is ~that ~you? ~LOL ~must ~be !" }$$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $${\color{green}" Ozo ~is ~that ~you? ~LOL ~must ~be !" }$$
 
-ㅤㅤㅤ C+h is always no need to ask ^_^ㅤㅤㅤㅤ w2i mostly always offtab !
+ㅤㅤㅤㅤ C+h is always no need to ask ^_^ㅤㅤㅤㅤ w2i mostly always offtab !
 
-ㅤㅤㅤㅤㅤㅤMy name is kyle hiii u can Find me @ rblx area near bakery
+ㅤㅤㅤㅤㅤㅤHiii My name is kyle , matt u can Find me @ rblx area near bakery
 
 
