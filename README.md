@@ -1,13 +1,6 @@
-
-<img width="600" height="636" alt="Untitled5_20251019202119" src="https://github.com/user-attachments/assets/5fb40ff8-bec7-4b44-9a13-b31a6396bc9c" />
-
-ㅤㅤㅤㅤhttps://yellowmuhqsigig.straw.page/  <img width="30" height="50" alt="Screenshot 2025-10-08 110115" src="https://github.com/user-attachments/assets/14a4eb10-12ba-47a4-8024-c0cdac963ac4" />
-https://yellowmu1qs.atabook.org/ 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $${\color{green}" Ozo ~is ~that ~you? ~LOL ~must ~be !" }$$
-
-ㅤㅤㅤㅤ C+h is always no need to ask ^_^ㅤㅤㅤㅤ w2i mostly always offtab !
-
-ㅤㅤㅤㅤㅤㅤHiii My name is kyle , matt u can Find me @ rblx area near bakery
+ㅤㅤㅤㅤㅤㅤㅤ<img width="367" height="323" alt="brandizi mm" src="https://github.com/user-attachments/assets/767395b9-ab60-4cd7-95b7-4ae3bde59387" /> 
 
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ $${\color{purple} I ~Wish ~I ~was ~with ~you ~all ~of ~the ~time  }$$
+
+ㅤㅤㅤㅤ![rccfv7](https://github.com/user-attachments/assets/56072bae-16eb-46a6-82f2-36e6ef405247) ㅤㅤ[Atabook](https://yellowmu1qs.atabook.org/) ㅤㅤㅤㅤ[Prnspage](https://en.pronouns.page/@Yellowmugqs) ㅤㅤㅤㅤ[Strawpage](https://yellowmuhqsigig.straw.page/)ㅤㅤ![70fu8a](https://github.com/user-attachments/assets/ec27e121-0635-4521-878c-96af740c0413)
