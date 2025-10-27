@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤ<img width="367" height="323" alt="brandizi mm" src="https://github.com/user-attachments/assets/767395b9-ab60-4cd7-95b7-4ae3bde59387" /> 
+ㅤㅤㅤㅤㅤ<img width="367" height="323" alt="brandizi mm" src="https://github.com/user-attachments/assets/767395b9-ab60-4cd7-95b7-4ae3bde59387" /> 
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ $${\color{purple} I ~Wish ~I ~was ~with ~you ~all ~of ~the ~time  }$$
