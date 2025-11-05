@@ -1,12 +1,25 @@
-ㅤ⠀⠀ ⠀⠀⠀⠀ ⠀⠀ ⠀ㅤㅤ⠀⠀ ⠀⠀ㅤㅤㅤㅤ<img width="367" height="323" alt="brandizi mm" src="https://github.com/user-attachments/assets/767395b9-ab60-4cd7-95b7-4ae3bde59387" /> 
 
-C+h is ALWAYS even when not said !! X_X⠀ ⠀⠀ ⠀⠀ㅤㅤ W2i im mostly offtab :-(⠀ ⠀⠀ ⠀⠀ㅤㅤFind me @ rblx area near bakery !! >_0
-
-
-⠀ ⠀⠀ ⠀⠀ㅤㅤ⠀ ⠀⠀ ⠀⠀ㅤㅤ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀⠀ㅤㅤ $${\color{purple} I ~Wish ~I ~was ~with ~you ~all ~of ~the ~time  }$$
+<img width="800" height="600" alt="Untitled23_20251105033626" src="https://github.com/user-attachments/assets/f20943c3-f333-401d-8b41-8c4b22185d4f" />
 
 
-⠀ ⠀⠀ ⠀⠀ㅤ⠀ ⠀⠀ ⠀ ⠀⠀ ㅤ![rccfv7](https://github.com/user-attachments/assets/9594cda8-37e6-476d-8f61-96e143292c14)⠀ ⠀⠀ ⠀⠀ㅤㅤ[Atabook](https://yellowmu1qs.atabook.org/)⠀ ⠀⠀ ⠀⠀ㅤㅤ[Prnspage](https://en.pronouns.page/@Yellowmugqs)⠀ ⠀⠀ ⠀⠀ㅤㅤ[Strawpage](https://yellowmuhqsigig.straw.page/)⠀ ⠀⠀ ⠀⠀ㅤㅤ![70fu8a](https://github.com/user-attachments/assets/6b968fcb-3358-48b2-8fa3-017e9bb687cb)
+
+⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀ $${\color{purple} I ~Wish ~I ~was ~with ~you ~all ~of ~the ~time  }$$⠀⠀⠀![rytsk0](https://github.com/user-attachments/assets/af3f76c3-4bf8-496e-afca-f220e2eff116)
+
+⠀⠀⠀ ⠀⠀⠀⠀⠀⠀  
+⠀⠀⠀ 
+⠀⠀ ⠀ [Strawpage](https://yellowmuhqsigig.straw.page/)⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ C+H is heavily encouraged :-)⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀![ig8fyr](https://github.com/user-attachments/assets/ffec4992-47d2-4468-b636-276cac46f10d)
+
+
+⠀⠀⠀ ⠀⠀⠀ ⠀[Ata Book](https://yellowmu1qs.atabook.org/)⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ W2i I'm mostly always offtab x_x⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀⠀ ![6nfs6c](https://github.com/user-attachments/assets/0bc2c142-25ea-470b-a6a7-63cb2fb94ff2)
+
+
+⠀⠀⠀ ⠀⠀⠀ ⠀[Prnspge](https://en.pronouns.page/@Yellowmugqs)⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ find me @ rblx area outside bakery >_<⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀![gu90kl](https://github.com/user-attachments/assets/f35ad260-8d10-4d14-acbf-5da8bf61364d)
+
+
+
+⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀
+⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀![judt82](https://github.com/user-attachments/assets/f382d3ad-03c6-48ed-b0f8-2198e1d4755f)⠀⠀⠀ ⠀⠀⠀[![Hits](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=PWNED&color=d6a700&labelColor=7d3080)](https://hits.sh/github.com/Yellowmugqs/hits/)⠀⠀⠀ ⠀⠀![7452sb](https://github.com/user-attachments/assets/5d82d856-3ade-4b7b-aede-1f34acd63599)
 
 
 <img width="386" height="113" alt="Screenshot 2025-10-28 202855" src="https://github.com/user-attachments/assets/ec7af2fc-5251-42ea-976b-40eaa20b4a6b" /> Hey [Brandon](https://github.com/kasperpwns)
+
