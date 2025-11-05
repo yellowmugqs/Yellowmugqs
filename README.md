@@ -23,6 +23,5 @@ W2i I'm mostly always offtab x_x⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀⠀
 ⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀![judt82](https://github.com/user-attachments/assets/f382d3ad-03c6-48ed-b0f8-2198e1d4755f)⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀<a href="https://hits.sh/github.com/Yellowmugqs/hits/"><img alt="Hits" src="https://hits.sh/github.com/Yellowmugqs/hits.svg?label=PWNED&color=dfb317&labelColor=510c5c"/></a>⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀![7452sb](https://github.com/user-attachments/assets/5d82d856-3ade-4b7b-aede-1f34acd63599)
 
 
-<img width="386" height="113" alt="Screenshot 2025-10-28 202855" src="https://github.com/user-attachments/assets/ec7af2fc-5251-42ea-976b-40eaa20b4a6b" /> Hey [Brandon](https://github.com/kasperpwns) ⠀⠀⠀ ⠀⠀ ⠀⠀![gu90kl](https://github.com/user-attachments/assets/f35ad260-8d10-4d14-acbf-5da8bf61364d)
-
+<img width="386" height="113" alt="Screenshot 2025-10-28 202855" src="https://github.com/user-attachments/assets/ec7af2fc-5251-42ea-976b-40eaa20b4a6b" /> Hey [Brandon](https://github.com/kasperpwns) ⠀⠀⠀ ⠀⠀ ⠀⠀
 
