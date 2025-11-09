@@ -3,7 +3,11 @@
 
 
 
-⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ $${\color{purple} I ~Wish ~I ~was ~with ~you ~all ~of ~the ~time  }$$⠀⠀⠀![rytsk0](https://github.com/user-attachments/assets/af3f76c3-4bf8-496e-afca-f220e2eff116)
+⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀[![Typing SVG](https://readme-typing-svg.demolab.com?font=Caveat&duration=4000&pause=1000&color=672E85&center=true&width=435&lines=I+want+to+watch+the+sun;sink+behind+the+heavens;with+you+.+.+.)](https://git.io/typing-svg)
+
+
+
+
 
 ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀  
 ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ [Strawpage](https://yellowmuhqsigig.straw.page/)⠀⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀  ⠀![evco5w](https://github.com/user-attachments/assets/9c03e2b0-cc7d-40f8-ac56-c1dd7e795cd3)
