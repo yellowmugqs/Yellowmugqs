@@ -14,6 +14,18 @@
 
 ___
 <img align="left" width="300" height="500" alt="Untitled9_20251116043724" src="https://github.com/user-attachments/assets/6756e0e4-0acb-4214-a810-3f38318474c8" />
+
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Caveat&duration=4000&pause=1000&color=672E85&center=true&width=435&lines=I+want+to+watch+the+sun;sink+behind+the+heavens;with+you+.+.+.)](https://git.io/typing-svg)
+ 
+![coh0ah](https://github.com/user-attachments/assets/03a593b2-4b09-488d-9fa3-566bcbcc1b71)
+
+
+
+⠀ㅤㅤ $${\color{gold} Check ~out ~stuff ~abt ~me ~and ~sign ~ata!! }$$
+⠀⠀
+
+  [Strawpage](https://yellowmuhqsigig.straw.page/)⠀ ⠀[Ata Book](https://yellowmu1qs.atabook.org/)⠀ ⠀[Prnspge](https://en.pronouns.page/@Yellowmugqs)
+  
 <table>
   <tr>
     <th>
@@ -30,16 +42,6 @@ ___
   </tr>
 </table>
 
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Caveat&duration=4000&pause=1000&color=672E85&center=true&width=435&lines=I+want+to+watch+the+sun;sink+behind+the+heavens;with+you+.+.+.)](https://git.io/typing-svg)
- 
-![coh0ah](https://github.com/user-attachments/assets/03a593b2-4b09-488d-9fa3-566bcbcc1b71)
-
-
-
-⠀ㅤㅤ $${\color{gold} Check ~out ~stuff ~abt ~me ~and ~sign ~ata!! }$$
-⠀⠀
-
-  [Strawpage](https://yellowmuhqsigig.straw.page/)⠀ ⠀[Ata Book](https://yellowmu1qs.atabook.org/)⠀ ⠀[Prnspge](https://en.pronouns.page/@Yellowmugqs)
 
 </div>
 
