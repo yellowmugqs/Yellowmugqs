@@ -1,4 +1,4 @@
-<img align="center" width="1000" height="1000" alt="2025_11_16_061_Kleki" src="https://github.com/user-attachments/assets/cd3562d9-e659-48be-a074-30e167618f10" />
+<img align="center" width="1000" height="1000" alt="2025_11_16_0kb_Kleki" src="https://github.com/user-attachments/assets/ece05e89-82bb-4c1f-b324-b5a66f51e768" />
 
   <p align="center">
     <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31cnxcw2relpoksjqk2ufialvmie&redirect=true">
@@ -10,7 +10,9 @@
 <div  align="center">
 
   ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=PWNED&color=dfb317&labelColor=65008a)
-<img width="1000" height="50" alt="2025_11_16_061_Kleki (1)" src="https://github.com/user-attachments/assets/bd496212-d05f-428b-91fb-51c395c82c15" />
+  
+<img width="482" height="20" alt="image-2024-05-24-010424103" src="https://github.com/user-attachments/assets/24207c4a-2ff0-4840-8678-b66074095f3a" />
+<img width="1025" height="50" alt="2025_11_16_061_Kleki (1)" src="https://github.com/user-attachments/assets/c0c7c6fd-a180-4a20-a99e-cc0bffdf1a5c" />
 
 ___
 <img align="left" width="300" height="500" alt="Untitled9_20251116043724" src="https://github.com/user-attachments/assets/6756e0e4-0acb-4214-a810-3f38318474c8" />
