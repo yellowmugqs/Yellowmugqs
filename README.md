@@ -1,31 +1,50 @@
+<img align="center" width="1000" height="1000" alt="2025_11_16_061_Kleki" src="https://github.com/user-attachments/assets/cd3562d9-e659-48be-a074-30e167618f10" />
 
-<img width="660" height="400" alt="Untitled23_20251105033626" src="https://github.com/user-attachments/assets/f20943c3-f333-401d-8b41-8c4b22185d4f" />
+  <p align="center">
+    <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31cnxcw2relpoksjqk2ufialvmie&redirect=true">
+      <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31cnxcw2relpoksjqk2ufialvmie&cover_image=true&theme=novatorem&show_offline=false&background_color=b48e8e&interchange=false&profanity=false&bar_color=ffea00&bar_color_cover=false">
+  </a>
+</p>
+
+<br>
+<div  align="center">
+
+  ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=PWNED&color=dfb317&labelColor=65008a)
+<img width="1000" height="50" alt="2025_11_16_061_Kleki (1)" src="https://github.com/user-attachments/assets/bd496212-d05f-428b-91fb-51c395c82c15" />
+
+___
+<img align="left" width="300" height="500" alt="Untitled9_20251116043724" src="https://github.com/user-attachments/assets/6756e0e4-0acb-4214-a810-3f38318474c8" />
+<table>
+  <tr>
+    <th>
+      <img align="center" width="350" height="200" img src= "https://64.media.tumblr.com/127db83efe30a439a1db804a6636b412/6f9145e3ad009ae5-0e/s2048x3072/7b489cd94c1bffa5490ec5cc80536429371fb3eb.pnj"> <br>
+      <div align="left">
+
+   <img src="https://github.com/user-attachments/assets/119974c8-9bd5-4277-a2dd-a6e6def3a527">
+    - My names kyle !! check prnspge for other names <br>
+    - C+h is always i lovec+h ok !! <br>
+    - pls w2i im mostly offtab >_> <br>
+    - You can find me at rblx area near bakery ^3^ <br>
+    - But uhm bmf!! i love making new friends !! <br>
+    </th>
+  </tr>
+</table>
+
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Caveat&duration=4000&pause=1000&color=672E85&center=true&width=435&lines=I+want+to+watch+the+sun;sink+behind+the+heavens;with+you+.+.+.)](https://git.io/typing-svg)
+ 
+![coh0ah](https://github.com/user-attachments/assets/03a593b2-4b09-488d-9fa3-566bcbcc1b71)
 
 
 
-⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀[![Typing SVG](https://readme-typing-svg.demolab.com?font=Caveat&duration=4000&pause=1000&color=672E85&center=true&width=435&lines=I+want+to+watch+the+sun;sink+behind+the+heavens;with+you+.+.+.)](https://git.io/typing-svg)
+⠀ㅤㅤ $${\color{gold} Check ~out ~stuff ~abt ~me ~and ~sign ~ata!! }$$
+⠀⠀
 
+  [Strawpage](https://yellowmuhqsigig.straw.page/)⠀ ⠀[Ata Book](https://yellowmu1qs.atabook.org/)⠀ ⠀[Prnspge](https://en.pronouns.page/@Yellowmugqs)
 
+</div>
 
+⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀![tumblr_52531373264ba4b3aadf439eada319ed_6c66e557_250](https://github.com/user-attachments/assets/52055b39-ec83-42ff-ad2c-5df784005666)⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀![tumblr_5304ec8bc83c863261630a3489941f30_786eaac0_250](https://github.com/user-attachments/assets/1fb4c8fa-3e55-4388-904b-19acca992abf)
 
-
-⠀⠀⠀ ⠀⠀⠀⠀⠀⠀  
-⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ [Strawpage](https://yellowmuhqsigig.straw.page/)⠀⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀  ⠀![evco5w](https://github.com/user-attachments/assets/9c03e2b0-cc7d-40f8-ac56-c1dd7e795cd3)
-⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ C+H is heavily encouraged :-)⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀
-
-
-⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ [Ata Book](https://yellowmu1qs.atabook.org/)⠀⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀  ⠀⠀ ![twkuc2](https://github.com/user-attachments/assets/38222591-3a9d-49de-8d59-2cbb739c6369) ⠀  ⠀ ⠀⠀⠀⠀⠀
-W2i I'm mostly always offtab x_x⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀⠀ 
-
-
-⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀ [Prnspge](https://en.pronouns.page/@Yellowmugqs)⠀⠀⠀⠀⠀⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀ ![6nfs6c](https://github.com/user-attachments/assets/b1c672cb-52ac-4aa7-89d9-94ec10c1f1ec)
-⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ find me @ rblx area outside bakery >_0⠀
-
-⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀
-
-
-⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀![judt82](https://github.com/user-attachments/assets/f382d3ad-03c6-48ed-b0f8-2198e1d4755f)⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=PWNED&color=dfb317&labelColor=65008a)⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀![7452sb](https://github.com/user-attachments/assets/5d82d856-3ade-4b7b-aede-1f34acd63599)
-
-
-<img width="386" height="113" alt="Screenshot 2025-10-28 202855" src="https://github.com/user-attachments/assets/ec7af2fc-5251-42ea-976b-40eaa20b4a6b" /> Hey [Brandon](https://github.com/kasperpwns) ⠀⠀⠀ ⠀⠀ ⠀⠀
-
+___
+</div>
+<img align="left" width="400" height="113" alt="Screenshot 2025-10-28 202855" src="https://github.com/user-attachments/assets/ec7af2fc-5251-42ea-976b-40eaa20b4a6b" /> Hey brand
