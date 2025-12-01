@@ -26,7 +26,7 @@ ___
 ⠀ㅤㅤ $${\color{gold} Check ~out ~stuff ~abt ~me ~and ~sign ~ata!! }$$
 ⠀⠀
 
-  [Strawpage](https://collinlock2002.straw.page/)⠀ ⠀[Ata Book](https://yellowmu1qs.atabook.org/)⠀ ⠀[Prnspge](https://en.pronouns.page/@Yellowmugqs)
+  [Strawpage](https://yellowmug1.straw.page/)⠀ ⠀[Ata Book](https://yellowmu1qs.atabook.org/)⠀ ⠀[Prnspge](https://en.pronouns.page/@Yellowmugqs)
   
 <table>
   <tr>
