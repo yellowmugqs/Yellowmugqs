@@ -35,11 +35,11 @@ ___
       <div align="left">
 
    <img src="https://github.com/user-attachments/assets/119974c8-9bd5-4277-a2dd-a6e6def3a527">
-    - My names kyle and im 5teen !! <br>
+    - My names kyle or matteo and im 5teen !! <br>
     - C+h is always i lovec+h ok !! <br>
-    - pls w2i im mostly offtab >_> <br>
-    - You can find me at rblx area near bakery ^3^ <br>
-    - But uhm bmf!! i love making new friends !! <br>
+    - pls w2i im mostly offtab and I miss messages <br>
+    - You can find me at rblx area near bakery in safe server <br>
+    - But uhm bmf!! i love making new friends ok!! <br>
     </th>
   </tr>
 </table>
