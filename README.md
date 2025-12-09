@@ -1,4 +1,4 @@
-<img align="center" width="1000" height="1000" alt="2025_11_16_0kb_Kleki" src="https://github.com/user-attachments/assets/ece05e89-82bb-4c1f-b324-b5a66f51e768" />
+ <img align="center" width="1000" height="1000" alt="2025_11_16_0kb_Kleki" src="https://github.com/user-attachments/assets/ece05e89-82bb-4c1f-b324-b5a66f51e768" />
 
   <p align="center">
     <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31cnxcw2relpoksjqk2ufialvmie&redirect=true">
@@ -30,8 +30,10 @@ ___
   
 <table>
   <tr>
-       <br>
+    <th>
+      <img align="center" width="350" height="200" img src="https://github.com/user-attachments/assets/81ec08c4-2717-4223-9dcb-d43cf4631fee" /> <br>
       <div align="left">
+
 
    <img src="https://github.com/user-attachments/assets/119974c8-9bd5-4277-a2dd-a6e6def3a527">
     - My names kyle or matteo and im 5teen !! <br>
@@ -39,6 +41,7 @@ ___
     - pls w2i im mostly offtab and I miss messages <br>
     - You can find me at rblx area near bakery in safe server <br>
     - But uhm bmf!! i love making new friends ok!! <br>
+    </th>
   </tr>
 </table>
 
