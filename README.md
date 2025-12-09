@@ -30,8 +30,7 @@ ___
   
 <table>
   <tr>
-    <th>
-      <img align="center" width="350" height="200" img src= "https://64.media.tumblr.com/127db83efe30a439a1db804a6636b412/6f9145e3ad009ae5-0e/s2048x3072/7b489cd94c1bffa5490ec5cc80536429371fb3eb.pnj"> <br>
+       <br>
       <div align="left">
 
    <img src="https://github.com/user-attachments/assets/119974c8-9bd5-4277-a2dd-a6e6def3a527">
@@ -40,7 +39,6 @@ ___
     - pls w2i im mostly offtab and I miss messages <br>
     - You can find me at rblx area near bakery in safe server <br>
     - But uhm bmf!! i love making new friends ok!! <br>
-    </th>
   </tr>
 </table>
 
