@@ -48,7 +48,7 @@ ___
 
 
 ![tumblr_52531373264ba4b3aadf439eada319ed_6c66e557_250](https://github.com/user-attachments/assets/52055b39-ec83-42ff-ad2c-5df784005666)⠀<img width="99" height="56" alt="68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f63373234383134313239313336383261636332373338343439316265316536652f376135373036383533363533646561372d61332f73313030783230302f38393463623431303338356238396131" src="https://github.com/user-attachments/assets/43ac1f26-efd8-45c8-9e58-7734731549d0" />
- ⠀ ⠀⠀![tumblr_5304ec8bc83c863261630a3489941f30_786eaac0_250](https://github.com/user-attachments/assets/1fb4c8fa-3e55-4388-904b-19acca992abf)
+![tumblr_5304ec8bc83c863261630a3489941f30_786eaac0_250](https://github.com/user-attachments/assets/1fb4c8fa-3e55-4388-904b-19acca992abf)
 
 
  ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀[Strawpage](https://yellowmug1.straw.page/)⠀⠀ ⠀⠀ ⠀⠀[Ata Book](https://yellowmu1qs.atabook.org/)⠀⠀⠀⠀ ⠀ ⠀[Prnspge](https://en.pronouns.page/@Yellowmugqs)
