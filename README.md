@@ -34,7 +34,7 @@ ___
 
    <img src="https://github.com/user-attachments/assets/119974c8-9bd5-4277-a2dd-a6e6def3a527">
     - My names kyle or matteo and im 5teen !! <br>
-    - C+h is always i lovec+h ok !! <br>
+    - C+h is always even when not said on pony! i lovec+h ok !! <br>
     - pls w2i im mostly offtab and I miss messages <br>
     - You can find me at rblx area near bakery in safe server <br>
     - But uhm bmf!! i love making new friends ok!! <br>
