@@ -51,7 +51,7 @@ ___
 ![tumblr_5304ec8bc83c863261630a3489941f30_786eaac0_250](https://github.com/user-attachments/assets/1fb4c8fa-3e55-4388-904b-19acca992abf)
 
 
- ⠀ ⠀⠀ ⠀  ⠀[Strawpage](https://yellowmug1.straw.page/)⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀[Ata Book](https://yellowmu1qs.atabook.org/)⠀⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀[Prnspge](https://en.pronouns.page/@Yellowmugqs)
+ ⠀ ⠀⠀ ⠀  ⠀[Strawpage](https://iwanttoseethesnow.straw.page/)⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀[Ata Book](https://yellowmu1qs.atabook.org/)⠀⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀[Prnspge](https://en.pronouns.page/@Yellowmugqs)
 
 
 <img align="center" width="1000" height="1000" alt="image-2024-05-24-010658333" src="https://github.com/user-attachments/assets/17a761cf-ec20-4291-9b42-616d38be5afd" />
