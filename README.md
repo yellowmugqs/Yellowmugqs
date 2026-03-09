@@ -52,8 +52,8 @@ You can find me mostly outside of bakery or at alnst area. <br>
 <img width="99" height="56" alt="tumblr_5565126519a6d64405d864bbe491b955_f394c76a_100" src="https://github.com/user-attachments/assets/6d09931f-586e-4d0d-9dd4-fda51b86a676" />
 
 <img width="99" height="56" alt= tumblr_6ff1fad58063b52873d362aac0ebb042_77db96e4_250 src="https://github.com/user-attachments/assets/0d085196-3450-4350-b842-d24cd7444e1c" />
+<img width="99" height="56" alt= tumblr_67523a6abf574d28e75ae41e22f772e5_409ce91c_250 src= https://github.com/user-attachments/assets/b77ca057-c48c-43df-8e70-73aca2dce866/>
 
-<img width="99" height="56" alt="2026_03_09_0og_Kleki" src="https://github.com/user-attachments/assets/f76a63b5-436c-4a2b-865a-3e80d2594b7d" />
 
   <p align="center">
 <img align="center" width="306" height="301"  alt="Untitled64_20260309134749" src="https://github.com/user-attachments/assets/85734844-ca34-45bd-aea1-092c92919fb6" />
