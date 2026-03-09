@@ -9,8 +9,7 @@
   ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=Clematis&color=FFFFFF&labelColor=F06CB9)
 
 
-  <p align="center">
-<img align="center" width="306" height="301"  alt="Untitled64_20260309134749" src="https://github.com/user-attachments/assets/85734844-ca34-45bd-aea1-092c92919fb6" />
+
 
 
    </a>
@@ -55,6 +54,9 @@ You can find me mostly outside of bakery or at alnst area. <br>
 <img width="99" height="56" alt= tumblr_6ff1fad58063b52873d362aac0ebb042_77db96e4_250 src="https://github.com/user-attachments/assets/0d085196-3450-4350-b842-d24cd7444e1c" />
 
 <img width="99" height="56" alt="2026_03_09_0og_Kleki" src="https://github.com/user-attachments/assets/f76a63b5-436c-4a2b-865a-3e80d2594b7d" />
+
+  <p align="center">
+<img align="center" width="306" height="301"  alt="Untitled64_20260309134749" src="https://github.com/user-attachments/assets/85734844-ca34-45bd-aea1-092c92919fb6" />
 
 <img align="center" width="1000" height="1000" alt="2026_03_09_0m0_Kleki" src="https://github.com/user-attachments/assets/277e0058-f5c0-4126-b5ad-21e4b0e203ec" />
 
