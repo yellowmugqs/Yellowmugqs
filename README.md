@@ -33,6 +33,7 @@
 
 
 I go by kyle idm being called yellow. <br>
+I'm 5teen years old. <br>
 C+h is always even when not said on pony. <br>
 pls w2i im mostly offtab and I miss messages. <br>
 You can find me mostly outside of bakery or at alnst area. <br>
@@ -53,8 +54,7 @@ You can find me mostly outside of bakery or at alnst area. <br>
 
 <img width="99" height="56" alt= tumblr_6ff1fad58063b52873d362aac0ebb042_77db96e4_250 src="https://github.com/user-attachments/assets/0d085196-3450-4350-b842-d24cd7444e1c" />
 
-
-</div>
+<img width="99" height="56" alt="2026_03_09_0og_Kleki" src="https://github.com/user-attachments/assets/f76a63b5-436c-4a2b-865a-3e80d2594b7d" />
 
 <img align="center" width="1000" height="1000" alt="2026_03_09_0m0_Kleki" src="https://github.com/user-attachments/assets/277e0058-f5c0-4126-b5ad-21e4b0e203ec" />
 
