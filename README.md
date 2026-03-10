@@ -42,7 +42,7 @@ You can find me mostly outside of bakery or at alnst area. <br>
 
 
 
-[Strawpage](https://hellooothisisnana.straw.page/) ⠀⠀ ⠀⠀[Ata Book](https://yellowmu1qs.atabook.org/)
+[Strawpage](https://bigmiz.straw.page/) ⠀⠀ ⠀⠀[Ata Book](https://yellowmu1qs.atabook.org/)
 
   <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31cnxcw2relpoksjqk2ufialvmie&redirect=true">
