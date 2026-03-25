@@ -21,8 +21,7 @@
 
 <img align="center" width="400" height="400" alt="2026_03_09_0lj_Kleki" src="https://github.com/user-attachments/assets/9daf2a98-89d7-40dc-96a8-169d65f919fa" />
 
-
- <img align="left" width="400" height="500" alt="Untitled64_20260309122736" src="https://github.com/user-attachments/assets/de1f0530-4ee3-4c12-81bb-58936b9397e8" />
+ <img align="left" width="300" height="700" src="https://github.com/user-attachments/assets/604dbfcf-0c43-4e60-aea6-36935ea713de" />
 
  <table>
   <tr>
@@ -56,7 +55,6 @@ You can find me mostly outside of bakery or at alnst area. <br>
 
 
   <p align="center">
-<img align="center" width="306" height="301"  alt="Untitled64_20260309134749" src="https://github.com/user-attachments/assets/85734844-ca34-45bd-aea1-092c92919fb6" />
 
 <img align="center" width="1000" height="1000" alt="2026_03_09_0m0_Kleki" src="https://github.com/user-attachments/assets/277e0058-f5c0-4126-b5ad-21e4b0e203ec" />
 
