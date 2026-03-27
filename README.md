@@ -3,7 +3,7 @@
  
 <div  align="center">
 
-  ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=GANG&color=fff6df&labelColor=7baec5)
+  ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=Packages&color=fff6df&labelColor=7baec5)
 
 
 
