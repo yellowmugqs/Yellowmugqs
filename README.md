@@ -33,7 +33,7 @@ You can find me mostly outside of bakery or at alnst area. <br>
 
 
 
-[Strawpage]((https://bunsua.straw.page/)) ⠀⠀ ⠀⠀[Ata Book](https://yellowmu1qs.atabook.org/) ⠀⠀ ⠀⠀
+[Strawpage](https://bunsua.straw.page/) ⠀⠀ ⠀⠀[Ata Book](https://yellowmu1qs.atabook.org/) ⠀⠀ ⠀⠀
 
 
   <p align="center">
