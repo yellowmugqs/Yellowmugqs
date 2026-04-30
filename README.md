@@ -1,3 +1,4 @@
+<img width="614" height="344" alt="image" src="https://github.com/user-attachments/assets/da7fb247-dbff-4775-8e08-8c130b9f8ce7" />
 
 <img align="center" width="948" height="948" alt="2026_03_27_0iz_Kleki" src="https://github.com/user-attachments/assets/42b45789-4fd3-466a-a857-c555794af77d" />
  
