@@ -1,6 +1,4 @@
-<img width="614" height="344" alt="image" src="https://github.com/user-attachments/assets/da7fb247-dbff-4775-8e08-8c130b9f8ce7" />
-
-<img align="center" width="948" height="948" alt="2026_03_27_0iz_Kleki" src="https://github.com/user-attachments/assets/42b45789-4fd3-466a-a857-c555794af77d" />
+<img align="left" width="525" height="525" alt="Untitled83_20260501122017" src="https://github.com/user-attachments/assets/ed294826-287b-4f0f-a959-c76d792926b7" />
  
 <div  align="center">
 
@@ -42,10 +40,9 @@ You can find me mostly outside of bakery or at alnst area. <br>
       <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31cnxcw2relpoksjqk2ufialvmie&cover_image=true&theme=novatorem&show_offline=false&background_color=b48e8e&interchange=false&profanity=false&bar_color=ffea00&bar_color_cover=false">
 
 
-<img width="1500" height="500" alt="2026_03_27_0j9_Kleki" src="https://github.com/user-attachments/assets/6e39fbc3-8fd3-4e2c-a0ad-346980bba2ca" />
 
 
-
+___________________________________
 </div>
 
 <img align="left" width="400" height="113" alt="Screenshot 2025-10-28 202855" src="https://github.com/user-attachments/assets/ec7af2fc-5251-42ea-976b-40eaa20b4a6b" />faggotfaggotfaggotfaggotfaggotfaggotfaggotfaggotfaggot
