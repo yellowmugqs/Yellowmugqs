@@ -1,8 +1,8 @@
-<img align="left" width="525" height="525" alt="Untitled83_20260501122017" src="https://github.com/user-attachments/assets/ed294826-287b-4f0f-a959-c76d792926b7" />
+<img align="left" width="450" height="450" alt="Untitled83_20260501122017" src="https://github.com/user-attachments/assets/ed294826-287b-4f0f-a959-c76d792926b7" />
  
 <div  align="center">
 
-  ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=Packages&color=fff6df&labelColor=7baec5)
+  ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=Clematis&color=ffffff&labelColor=0000)
 
 
 
