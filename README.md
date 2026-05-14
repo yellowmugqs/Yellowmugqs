@@ -43,9 +43,5 @@ You can find me mostly outside of bakery or at alnst area. <br>
 
 
 
-___________________________________
-</div>
-
-<img align="left" width="400" height="113" alt="Screenshot 2025-10-28 202855" src="https://github.com/user-attachments/assets/ec7af2fc-5251-42ea-976b-40eaa20b4a6b" />faggotfaggotfaggotfaggotfaggotfaggotfaggotfaggotfaggot
 
 
