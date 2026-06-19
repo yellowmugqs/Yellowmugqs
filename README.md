@@ -1,36 +1,8 @@
-<div  align="center">
-<img align="center" width="600" height="408" alt="Untitled94_20260507202830" src="https://github.com/user-attachments/assets/d39e9ad1-f0ed-4d2e-ac2a-07eb87761d38" />
- 
-<div  align="center">
+ <div  align="center">
 
   ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=Clematis&color=ffffff&labelColor=0000)
 
-
-
-
-
-   </a>
-</p>
-
-<br>
-<div  align="center">
-
-
- <table>
-  <tr>
-    <th>
-      <div align="left">
-
-
-I go by kyle idm being called yellow. <br>
-I'm 5teen years old. <br>
-C+h is always even when not said on pony. <br>
-pls w2i im mostly offtab and I miss messages. <br>
-You can find me mostly outside of bakery or at alnst area. <br>
-    </th>
-  </tr>
-</table>
-
+  Hi i don't use pt as much anymore lol . i will be remaking github or something whaetverr ioncurrr
 
 
 [Strawpage](https://bunsua.straw.page/) ⠀⠀ ⠀⠀[Ata Book](https://yellowmu1qs.atabook.org/) ⠀⠀ ⠀⠀
