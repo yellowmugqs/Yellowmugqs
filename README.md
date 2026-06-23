@@ -1,6 +1,6 @@
  <div  align="center">
 
-  ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=Clematis&color=ffffff&labelColor=0000)
+  ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=Tapes&color=ffffff&labelColor=0000)
 
   Hi i don't use pt as much anymore lol . i will be remaking github or something whaetverr ioncurrr
 
