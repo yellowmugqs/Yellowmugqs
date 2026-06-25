@@ -5,7 +5,7 @@
   Hi i don't use pt as much anymore lol . i will be remaking github or something whaetverr ioncurrr
 
 
-[Strawpage](https://bunsua.straw.page/) ⠀⠀ ⠀⠀[Ata Book](https://yellowmu1qs.atabook.org/) ⠀⠀ ⠀⠀
+[carrd](https://paramor3.carrd.co/#) ⠀⠀ ⠀⠀[Ata Book](https://yellowmu1qs.atabook.org/) ⠀⠀ ⠀⠀
 
 
   <p align="center">
