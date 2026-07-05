@@ -2,7 +2,7 @@
 
   ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=Tapes&color=ffffff&labelColor=0000)
 
-  Hi i don't use pt as much anymore lol . i will be remaking github or something whaetverr ioncurrr
+  
 
 
  ⠀ ⠀⠀ ⠀ [carrd](https://paramor3.carrd.co/#) ⠀⠀ ⠀⠀[Ata Book](https://yellowmu1qs.atabook.org/) ⠀⠀ ⠀⠀
@@ -13,12 +13,6 @@
       <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31cnxcw2relpoksjqk2ufialvmie&cover_image=true&theme=novatorem&show_offline=false&background_color=b48e8e&interchange=false&profanity=false&bar_color=ffea00&bar_color_cover=false">
 
 
- Hey.everypony. pls be aware of @alnstslop . theyre stalking me on pt . and proof is right here. be. careful.
-   <img width="424" height="238" alt="Screenshot 2026-06-30 012205" src="https://github.com/user-attachments/assets/9040199a-b59a-4006-8643-56e432abddef" />
-
-   also this the fuck the fuck
-   
-   <img width="626" height="216" alt="image" src="https://github.com/user-attachments/assets/4ab7b525-5703-4097-953d-2dfbfafcb0b4" />
 
 
 
