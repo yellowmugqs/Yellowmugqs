@@ -1,7 +1,5 @@
  <div  align="center">
 
-  ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=visits&color=ffffff&labelColor=0000)
-
   
 
   <img width="200" height="230" alt="Untitled118_20260709040405" src="https://github.com/user-attachments/assets/ce0afcc2-e117-40f6-86ce-a7f9bd19a822" />
