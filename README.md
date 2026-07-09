@@ -1,6 +1,6 @@
  <div  align="center">
 
-  ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=Tapes&color=ffffff&labelColor=0000)
+  ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=visits&color=ffffff&labelColor=0000)
 
   
 
