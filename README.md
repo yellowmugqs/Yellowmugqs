@@ -6,7 +6,7 @@
 
 
 
- ⠀ ⠀⠀ ⠀ [carrd](https://paramor3.carrd.co/#) ⠀⠀ ⠀⠀[Ata Book](https://yellowmu1qs.atabook.org/) ⠀⠀ ⠀⠀
+ ⠀⠀ ⠀⠀[Ata Book](https://yellowmu1qs.atabook.org/) ⠀⠀ ⠀⠀
 
 
   <p align="center">
