@@ -1,8 +1,8 @@
  <div  align="center">
 
-  When I dream, I dream of you 
+  Just want you to be my emergency contact
 
-  <img width="200" height="230" alt="Untitled118_20260709040405" src="https://github.com/user-attachments/assets/ce0afcc2-e117-40f6-86ce-a7f9bd19a822" />
+<img width="400" height="400" alt="d8d5275f366eaa812d25d9d5cfb248ac-removebg-preview" src="https://github.com/user-attachments/assets/e2382d88-bc2b-4122-8c72-c834a5f65c99" />
 
 
 
