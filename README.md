@@ -6,7 +6,7 @@
 
 
 
- ⠀⠀ ⠀⠀[Ata Book](https://yellowmu1qs.atabook.org/) ⠀⠀ ⠀⠀
+ ⠀⠀ ⠀⠀[Ata Book](https://yellowmu1qs.atabook.org/) ⠀⠀ ⠀⠀[Ata Book](https://hellooothisisnana.straw.page/)
 
 
   <p align="center">
