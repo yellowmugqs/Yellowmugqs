@@ -13,6 +13,9 @@
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31cnxcw2relpoksjqk2ufialvmie&redirect=true">
       <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31cnxcw2relpoksjqk2ufialvmie&cover_image=true&theme=novatorem&show_offline=false&background_color=b48e8e&interchange=false&profanity=false&bar_color=ffea00&bar_color_cover=false">
 
+redoing my profile soon oki
+
+<img width="1339" height="604" alt="Screenshot 2026-08-23 093948" src="https://github.com/user-attachments/assets/7e74e96b-80d0-47ff-8428-56b5a20defac" />
 
 
 
