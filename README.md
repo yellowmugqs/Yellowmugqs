@@ -5,7 +5,7 @@
 <br>
 <div  align="center">
   
-[Profile](https://rid.lol/@ozolog1)
+[Profile](https://prey.lol/@ozolog1)
 <br>
 <div  align="center">
   
