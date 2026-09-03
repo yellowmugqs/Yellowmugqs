@@ -13,5 +13,7 @@
 
 <img width="675" height="337" alt="Screenshot 2026-09-01 170030" src="https://github.com/user-attachments/assets/4de576f8-f986-46d4-80e7-90c6c376232c" />
 
+<br>
+<div  align="center">
 
-
+[<3](https://github.com/pt-friendships)
