@@ -1,7 +1,7 @@
 <br>
 <div  align="center">
 
-[ata book](https://yellowmu1qs.atabook.org/)    n    [Strawpage](https://heavencallsforall.straw.page/) 
+[ata book](https://yellowmu1qs.atabook.org/)    n    [Strawpage](https://adventur3time.straw.page/) 
 <br>
 <div  align="center">
   
