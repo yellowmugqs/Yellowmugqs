@@ -11,3 +11,6 @@
   
  ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=bites&color=000000&labelColor=800c0c)
 
+
+<img width="448" height="429" alt="image" src="https://github.com/user-attachments/assets/d6b17525-321d-470b-a023-c4940415b15d" />
+
