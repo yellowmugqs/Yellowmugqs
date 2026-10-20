@@ -12,5 +12,5 @@
  ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=bites&color=000000&labelColor=800c0c)
 
 
-<img width="704" height="307" alt="Screenshot 2026-10-03 221451" src="https://github.com/user-attachments/assets/6cf2e1c3-6525-4af4-af42-5c47805ea268" />
+<img width="707" height="466" alt="Screenshot 2026-10-20 163623" src="https://github.com/user-attachments/assets/cc5c8471-92eb-42ea-b35c-0d542e7950d8" />
 
