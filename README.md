@@ -9,8 +9,8 @@
 <br>
 <div  align="center">
   
- ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=bites&color=000000&labelColor=800c0c)
+ ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=views&color=000000&labelColor=800c0c)
 
 
-<img width="707" height="466" alt="Screenshot 2026-10-20 163623" src="https://github.com/user-attachments/assets/cc5c8471-92eb-42ea-b35c-0d542e7950d8" />
+<img width="711" height="367" alt="dc70cbba776f3d23581a2d925becadb6" src="https://github.com/user-attachments/assets/6cce236d-7b97-4bad-9489-833d84c63385" />
 
