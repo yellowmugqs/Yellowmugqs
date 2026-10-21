@@ -1,16 +1,19 @@
 <br>
-<div  align="center">
+<div  align="left">
+<picture><img width="300" height="400" alt="057ca55c2a7f4f6613be5250e8f164ff-removebg-preview" src="https://github.com/user-attachments/assets/ffc81918-4953-4a42-ad8b-022b225bce18" />
+
+  
+<div  align="right">
 
 [ata book](https://yellowmu1qs.atabook.org/)    n    [Strawpage](https://sendmethestars.straw.page/) 
 <br>
-<div  align="center">
   
 [Profile](https://kuro.rip/ozolog1)
-<br>
-<div  align="center">
-  
+<br>  
  ![7452sb](https://hits.sh/github.com/Yellowmugqs/hits.svg?label=views&color=000000&labelColor=800c0c)
+ 
+She will be evolved
+And I will be adored
+Adored, adored, adored, adored
 
-
-<img width="711" height="367" alt="dc70cbba776f3d23581a2d925becadb6" src="https://github.com/user-attachments/assets/6cce236d-7b97-4bad-9489-833d84c63385" />
 
